@@ -1,1 +1,1 @@
-# Jie-AI.github.io
+#idejie.com
